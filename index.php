@@ -1,1 +1,1 @@
-gözde bana 2 çaysadsad
+gözde bana 2 çaysadsad   asdd
